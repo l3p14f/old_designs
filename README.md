@@ -1,2 +1,2 @@
 # old_designs
-Few old designs, some sold, some not so much.
+Few old designs, the ones that are not NDA agreed upon.
